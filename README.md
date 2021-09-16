@@ -1,2 +1,1 @@
-# L RAMG (Public)
- ![alt text](https://realwar.ucoz.ru/2020/gitHub/GTA5/PATREON/Screens123.png)
+![alt text](https://realwar.ucoz.ru/2020/gitHub/GTA5/PATREON/Screens123.png)
